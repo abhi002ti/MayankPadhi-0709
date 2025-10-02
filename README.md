@@ -1,3 +1,3 @@
 ........
 I am glad to meet you here in this vast dimension. i was lonely wandering and exploring without a friend . 
-your welcome here.
+you are welcome here.
